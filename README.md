@@ -1,2 +1,2 @@
 # find me elsewhere @
-🔗 [icehotlemonade.com](https://icehotlemonade.com/links)
+🔗 [icehotlemonade.com/links](https://icehotlemonade.com/links)
